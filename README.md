@@ -64,17 +64,7 @@ Quer fazer parte do nosso time? É fácil:
 Dúvidas? Envie-nos uma mensagem no Slack ou um e-mail para [seu endereço de e-mail].
 
 Obrigado por ser parte deste projeto de dados contábeis! Juntos, estamos simplificando a contabilidade! 🚀📊
-
+>
 > #### Extraterrestres e Espiritualidade: Explorando o Desconhecido
 >
-> A busca por vida extraterrestre tem sido um dos maiores mistérios da humanidade. Enquanto olhamos para os céus em busca de respostas, a espiritualidade nos ensina a olhar para dentro. Será que essas duas jornadas se cruzam?
->
-> A ideia de que estamos sozinhos no universo é desafiada a cada nova descoberta científica. À medida que exploramos outros planetas e luas, nossas mentes se abrem para a possibilidade de vida além da Terra. Mas e se esses seres extraterrestres não fossem apenas físicos, mas também espirituais?
->
-> Alguns argumentam que a espiritualidade é a busca pelo conhecimento interior, pela conexão com algo maior do que nós mesmos. Se os extraterrestres existem, talvez eles também estejam em busca dessa conexão espiritual, não apenas em direção aos confins do espaço, mas em direção aos confins de sua própria compreensão.
->
-> A espiritualidade nos ensina a humildade, a aceitação da incerteza e a busca pela harmonia com o cosmos. Talvez, ao encontrarmos seres de outros mundos, possamos aprender com eles não apenas sobre a física do universo, mas também sobre a espiritualidade universal que nos une.
->
-> Enquanto continuamos nossa busca por respostas nos céus, que também possamos olhar para dentro, explorando os mistérios de nossa própria espiritualidade e refletindo sobre o que podemos aprender com aqueles que podem estar olhando para nós de planetas distantes. Afinal, a verdadeira jornada é tanto externa quanto interna, e talvez aí esteja a chave para desvendar os segredos do universo.
->
-> Que essa busca nos inspire a sermos não apenas exploradores do espaço, mas também exploradores de nosso próprio potencial espiritual, à medida que continuamos a desvendar os enigmas do cosmos. 🌌🌟🧘‍♂️
+> Explorando a conexão entre a busca por vida extraterrestre e a espiritualidade, ponderando se seres de outros mundos também buscam uma conexão espiritual. Refletindo sobre a humildade, incerteza e harmonia cósmica que a espiritualidade ensina, e como isso pode se aplicar a um encontro com seres extraterrestres.
